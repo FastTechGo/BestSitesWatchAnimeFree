@@ -37,3 +37,5 @@ Do you remove any website?
 Do you add any anime site?
 
 https://fintechzoom.com/lifestyle/entertainment/animation/watch-anime-free-21-free-anime-sites-to-watch-online-the-best-anime/
+or
+https://bit.ly/3lMpVfD
